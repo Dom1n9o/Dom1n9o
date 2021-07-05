@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dom1n9o 
 - Newbieeee there. I'm bad, Seriously. 
 - Is it a social media app? Any hot girl there? I love whores 💕
-- Love this lyrics --  Givenchy  LouisV  DoubleV  Icey, WWedding ring  Better things  Better half  Wifey. 
+- Love this lyrics --  Givenchy  LouisV  DoubleV  Icey, Wedding ring  Better things  Better half  Wifey. 
 - GL
 
 <!---
