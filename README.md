@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dom1n9o 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on fking hot whore 
+- 💞️ I’m looking to collaborate on fking hot girl
 - 📫 How to reach me "bottle"
 
 <!---
