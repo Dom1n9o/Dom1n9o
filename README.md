@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @Dom1n9o 
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on fking hot girl
-- 📫 How to reach me "bottle"
+- Newbiee there. I'm bad 
+- Is it a social media app? Any hot girl there? I love whores 💕
+- Love this lyrics --  Givenchy  LouisV  DoubleV  icey, wedding ring  better things  better half  wifey. 
 
 <!---
 Dom1n9o/Dom1n9o is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
